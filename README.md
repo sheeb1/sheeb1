@@ -6,7 +6,7 @@ I'm sheeb1
 - I use arch btw
 - I know a little bit of python but I want to learn some more in the future!
 - Pokemon lover
-- One Piece watcher (ep 81 as of 8/16/24)
+- One Piece watcher (ep 92 as of 8/18/24)
 - Minecraft!!!!!
 - Avid chess player
 - hydrohomie
